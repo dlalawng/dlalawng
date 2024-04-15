@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @dlalawng. Dan 
 - 👀 I’m interested in Cloud Computing
-- 🌱 I’m currently learning Python3
+- 🌱 I’m a gardener
 - 📫 How to reach me ... danielvlalawng@gmail.com
 - 😄 Pronouns: ...HE/HIM
 - ⚡ Fun fact: ... My dog Momo is the cutest girl ever
